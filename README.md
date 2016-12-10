@@ -1,1 +1,0 @@
-# ladakis.github.io
